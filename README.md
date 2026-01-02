@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+I’m Sokchan, a Computer Science graduate from the Royal University of Phnom Penh (RUPP). I consider myself a responsible, organized, and hardworking individual.
 
 
 ## 🌐 Socials:
